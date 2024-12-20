@@ -2,7 +2,7 @@
 - 👀 I’m interested in Custom roms, phones, computers and bicycles
 - 🌱 I’m currently learning IDK
 - 💞️ I’m looking to collaborate on With nobody
-- 📫 How to reach me 🤫
+- 📫 How to reach me Snapchat, mesenger and discord
 - 😄 Pronouns: IDK
 - ⚡ Fun Fact: TDK
 
